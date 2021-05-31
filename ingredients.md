@@ -1,0 +1,1 @@
+Main ingredients: Yoghurt, Urad dal, Vada
